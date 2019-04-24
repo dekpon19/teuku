@@ -1,0 +1,2 @@
+# teuku
+melaju tanpa batas
